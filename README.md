@@ -9,7 +9,7 @@ En théorie il suffit de les uploads puis clic droit -> copy path et remplacer l
 Lors de ces dernières semaines, le projet de loi immigration à fait parler de lui. Si le projet à été refusé aux premiers abord par l'assemblée nationale, il fut accepté après le rajout de certaines clauses en comité mixte paritaire pour séduire certains représentants du Rassemblement national et du parti Les Républicains. 
 
 Marine le Pen décrit cela comme une victoire idéologique de son parti et cela me fit réfléchir à certains arguments anti-immigration qui furent avancés. 
-«L'immigration est le carburant de l'insécurité», a déclaré ce mardi sur CNEWS Julien Odoul, député de l'Yonne et porte-parole du Rassemblement national. Invité de la Matinale de CNEWS, le mardi 26 décembre 2023.
+«L'immigration est le carburant de l'insécurité», a déclarésur CNEWS Julien Odoul, député de l'Yonne et porte-parole du Rassemblement national. Invité de la Matinale de CNEWS, le mardi 26 décembre 2023.
 
 Je me suis alors dit qu'il serait intéréssant de voir comment le crime et les délits avaient évolués en France ces dernières années et comment l'immigration affectait ces derniers.
 
